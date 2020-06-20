@@ -1,1 +1,1 @@
-# iBingru..github.io
+# iBingru.github.io
